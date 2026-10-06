@@ -1,1 +1,1 @@
-# biodata-fariz-kurnia.md
+# magang-fariz-kurnia.md
